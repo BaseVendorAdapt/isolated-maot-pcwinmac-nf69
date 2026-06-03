@@ -1,4 +1,4 @@
-# 
+# Atualizado isolated-margin trading bot predefinições para Mac OS | Nativo isolated-margin trading bot predefinições para PC Windows. Com gerenciamento de alavancagem e estratégia de reversão à média — otimizado para máximo desempenho em cada plataforma.
 
 
 
